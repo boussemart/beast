@@ -63,6 +63,7 @@ Beast Playlist
 
 - [Le coeur du monde](https://music.youtube.com/watch?v=lRwYeGATgYE&feature=share)
 - [Corruption](https://music.youtube.com/watch?v=N5o74FjkS-Y&feature=share)
+- [Idées Noires](https://music.youtube.com/watch?v=ubL_hVPm6Oc&feature=share)
 
 ## Indochine
 
