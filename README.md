@@ -32,6 +32,29 @@ Beast Playlist
 - [Je ne suis pas un héro](https://music.youtube.com/watch?v=Ln6uYNwMs1U&feature=share)
 - [Vidéo série noir](https://music.youtube.com/watch?v=9fpU-OkFDQM&feature=share)
 
+## Gérard Manset
+
+- [Mensonges Aux Foules](https://music.youtube.com/watch?v=qhJGf4X0UFU&feature=share)
+- [Comme Un Légo](https://music.youtube.com/watch?v=WK5H_pFNrj0&feature=share)
+- [Est-ce ainsi](https://music.youtube.com/watch?v=XAPNhIpFIIQ&feature=share)
+- [Prisionnier de l'inutile](https://music.youtube.com/watch?v=qbCDdNnvhLk&feature=share)
+- [Matrice](https://music.youtube.com/watch?v=jwk3pIKS554&feature=share)
+- [La Ballade des Echinodermes](https://music.youtube.com/watch?v=vnrZt0l-4fs&feature=share)
+- [Le Jour où tu voudras partir](https://music.youtube.com/watch?v=M5HPHi4f2qc&feature=share)
+- [La Mer n'a pas cessé de descendre](https://music.youtube.com/watch?v=MldNebJ-ZaE&feature=share)
+- [2870](https://music.youtube.com/watch?v=yVFvuk3WzFU&feature=share)
+- [Attends que le temps te vide](https://music.youtube.com/watch?v=mkcfRJMKDFg&feature=share)
+- [Comme un Guerrier](https://music.youtube.com/watch?v=_BLClQ4UqaM&feature=share)
+- [Camion Baché](https://music.youtube.com/watch?v=MwZpPph6Wsc&feature=share)
+- [Chambre d'Asie](https://music.youtube.com/watch?v=zwsqGhVlQ3U&feature=share)
+- [Le Pont](https://music.youtube.com/watch?v=jzA__2qF_3o&feature=share)
+
+## Alain Souchon
+
+- [Et si y a personne](https://music.youtube.com/watch?v=JoXJyvFzO7I&feature=share)
+- [Poullailer's Song](https://music.youtube.com/watch?v=bMGqcGtSgho&feature=share)
+- [C'est comme vous voulez](https://music.youtube.com/watch?v=8zh6s4qzPHY&feature=share)
+
 ## France Gall
 
 - [Résiste](https://music.youtube.com/watch?v=yfWidf08bmo&feature=share)
