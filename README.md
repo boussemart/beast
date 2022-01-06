@@ -69,7 +69,6 @@ Beast Playlist
 ## Sophie And The Giants
 
 - Hypnotized : https://music.youtube.com/watch?v=uMme1L7bvj4&feature=share
-rix Revolutions END : https://music.youtube.com/watch?v=TXoSPAGUH2M&feature=share
 
 ## Orelsan
 
