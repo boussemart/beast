@@ -12,6 +12,7 @@ Beast Playlist
 
 - [La Vie est Belle](https://music.youtube.com/watch?v=pfy-CG2gZZs&feature=share)
 - [L'impact avec le diable](https://music.youtube.com/watch?v=dYQblKaDRBk&feature=share)
+- [Mephisto Iblis](https://music.youtube.com/watch?v=WtZAxSJgSMs&feature=share)
 - [Carpe Diem](https://music.youtube.com/watch?v=WrrqphLuGkc&feature=share)
 - [Guerrila](https://music.youtube.com/watch?v=tr3iPdakUcw&feature=share)
 - [Solaar Pleure](https://music.youtube.com/watch?v=26jUkySXaO4&feature=share)
