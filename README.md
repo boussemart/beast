@@ -84,6 +84,7 @@ Beast Playlist
 - Big Freeze : https://music.youtube.com/watch?v=bXr-9tWhefo&feature=share
 - Aftermath : https://music.youtube.com/watch?v=YkB9a_DR-7A&feature=share
 - Endlessly : https://music.youtube.com/watch?v=yZLPo6XgsIM&feature=share
+- Sing For Absolution : https://music.youtube.com/watch?v=xDOwjPWCU3g&feature=share
 
 ## Kelly Rowland
 
