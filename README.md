@@ -134,3 +134,7 @@ Beast Playlist
 ## Bon Jovi
  
 - [It's my Life](https://www.youtube.com/watch?v=9SKFwtgUJHs)
+
+## Jairo
+
+- [Les Jardins du Ciel](https://music.youtube.com/watch?v=YFKV13x3Ae4&feature=share)
